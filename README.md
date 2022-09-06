@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @makelele09
 - 👀 I’m interested in learning from the best ones
 - 🌱 I’m currently learning github 
-- 💞️ I’m looking to collaborate on everything that will make me and you growth 
+- 💞️ I’m looking to collaborate on everything that will make me and you grow 
 - 📫 You can reach me through my Instagram mikelf88
